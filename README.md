@@ -1,1 +1,0 @@
-# modesy-art-vendor-shopping-website-main
